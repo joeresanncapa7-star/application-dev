@@ -1,7 +1,7 @@
 # application-dev
 My First Laboratory
 ## Favorite Animation
-### Spy X Family
+### DRAGON BALL Z
 **Most Animation Watched**
 >A telepathic kid named Anya, got adopted by a spy that need a family for his misson.
 ___
